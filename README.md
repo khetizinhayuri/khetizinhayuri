@@ -15,4 +15,4 @@
 Qualquer dúvida entre em contato
 <a href="khetlynn.souza@escola.pr.gov.br" target="_blank"><img src="https://img.shields.io/badge/Gmail-D14836?style=for-the-badge&logo=gmail&logoColor=white" target="_blank"/></a>
 
-![](https://tenor.com/pt-BR/view/excited-excited-dog-excited-puppy-happy-puppy-mrdakitten-gif-7203221725565162189)
+![](https://media1.tenor.com/m/Y_b7_r6wEs0AAAAd/excited-excited-dog.gif)
